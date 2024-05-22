@@ -1,1 +1,1 @@
-# SI_2024_lab2_203190
+Nikola Cvetkovski, 203190
